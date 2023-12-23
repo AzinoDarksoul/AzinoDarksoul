@@ -1,3 +1,3 @@
-❤️[ilovesiddhant.com](http://ilovesiddhant.com)❤️
+❤️[ilovesand.com](http://ilovesand.com)❤️
 
-A website for your lover 🩷💌🎀🫶🏻
+A website for your friend 🩷💌🎀🫶🏻
